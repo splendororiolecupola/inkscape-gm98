@@ -1,4 +1,4 @@
-# 
+# professional Affinity Photo para PC addons é o melhor Affinity Photo para PC addons com rastreamento de movimento e simulação de tecido. Seguro, confiável e otimizado para máximo
 
 
 
